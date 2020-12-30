@@ -1,0 +1,1 @@
+Estava com receio de fazer este curso e comecei umas cinco vezes e parei, sabia que teria de fazer uma conta no Github estava insegura quanto a isso, mas agora pela sexta vez estou fazendo e achando o curso incrivel. Obrigada a Gama por tudo!
